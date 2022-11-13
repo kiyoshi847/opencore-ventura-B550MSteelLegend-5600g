@@ -1,0 +1,1 @@
+# opencore-ventura-B550MSteelLegend-5600g
